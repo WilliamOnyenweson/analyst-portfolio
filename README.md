@@ -48,5 +48,5 @@ Interested in opportunities across:
 
 **LinkedIn:** https://www.linkedin.com/in/william-onyenweson-0506a7307
 
-**Email:** williamonyenweson@gmail.com
+**Email:** wonyenweson@gmail.com
 
